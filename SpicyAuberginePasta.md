@@ -1,5 +1,5 @@
 # Spicy Aubergine Pasta Sauce Recipe
-This serves like 1-2 people? Every time I make this I eyeball all the measurements but for the sake of convenience I have added some (**rough**) guesses
+This serves like 1-2 people? Every time I make this I eyeball all the measurements but for the sake of convenience I have added some *rough* guesses
 
 Ingredients:
 
