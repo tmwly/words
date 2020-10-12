@@ -6,7 +6,7 @@ Ingredients:
 * Half an Aubergine or more, chopped into roughly bite sized chunks
 * 2 - ∞ Garlic cloves, minced
 * 1 Tin chopped tomato (could be replaced with lots of fresh tomatos chopped up)
-* 1-1.5 tbsp of tomato puree  
+* 1 - 1.5 tbsp of tomato puree  
 * 1 small onion or half a big onion or 2/3's of a medium onion or 5/8's...... etc, diced
 * Olive oil
 * Salt & pepper (get a pepper grinder don't use pre ground come on)
