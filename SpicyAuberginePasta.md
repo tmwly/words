@@ -1,5 +1,5 @@
 # Spicy Aubergine Pasta Sauce Recipe
-This serves like 1-2 people? Every time I make this I eyeball all the measurements but for the sake of convenience I have added some (rough) guesses
+This serves like 1-2 people? Every time I make this I eyeball all the measurements but for the sake of convenience I have added some (**rough**) guesses
 
 Ingredients:
 
@@ -31,4 +31,4 @@ Optional extras:
 
 Voila! Should be nice! 
 
-For an extra bit of good, mix in a little bit of the pasta water into the sauce - this helps it stick to the pasta better and adds some nice salt (assuming you have salted your pasta water which you should be doing)
+For an extra bit of good, mix in a little bit of the pasta water into the sauce - this helps it stick to the pasta better and adds some nice salt (assuming you have heavily salted your pasta water which you **should** be doing)
